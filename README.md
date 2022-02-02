@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rooster3833
+- 👀 I’m interested in text and it courses 
+- 🌱 I’m currently learning for my compTIA A+
+- 💞️ I’m looking to collaborate on new year when i graduate high school
+- 📫 How to reach me: wynandventer12345@gmail.com
